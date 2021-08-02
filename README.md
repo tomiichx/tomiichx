@@ -1,0 +1,4 @@
+- 👋 @tomiichx | #Tomić
+- 👀 FiveM Development
+- 🌱 Croatia/Germany
+- 📫 tomiichx@gmail.com | Tomić#9076
