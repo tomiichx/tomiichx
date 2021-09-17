@@ -1,4 +1,6 @@
 - 👋 @tomiichx | #Tomić
 - 👀 FiveM Development
 - 🌱 Croatia/Germany
+- 👀 Keva mu se jebe za 30e
+- 👀 Odgovaraces za te cepave zlikovce jedan!
 - 📫 tomiichx@gmail.com | Tomić#9076
